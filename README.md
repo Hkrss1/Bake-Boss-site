@@ -136,9 +136,9 @@ Extracted pages from Bake Boss Logo_page-0001 (1).jpg
 
 Author: Ankit Raj
 Brand: Bake Boss
-Email: bake.boss@bentocakery.com
+Email: ankit512002@gmail.com
 
-Phone: +91 86999-61616
+Phone: +91 ---------
 
 📜 License
 
